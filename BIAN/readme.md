@@ -1,1 +1,1 @@
-contient les medias etla fiche.
+contient les medias et la fiche
