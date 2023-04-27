@@ -37,5 +37,3 @@ Lorsque j'ai visité cette instalation je me suis sentie amusée puisque le fait
 ### Créer par:
 ### Éloise Gagné, Skayla Stimphil, Mchael Simard, Pénélope Morrisson 
 ### Info sur l'instalation 
-
-### Sébastien Reilly, Sabrina Laforest, Alexendre Daniel, Maxime Des Lauriers
